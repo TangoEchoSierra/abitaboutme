@@ -2,7 +2,7 @@
 
 A bit about myself.
 
-My name is Terence Schultz. I originally graduated in Computer Networking over two decades ago but never got a chance to work in IT up until last year. I have worked in different roles and fields, moving around whereever I'm needed in the company
+I originally graduated in Computer Networking over two decades ago but never got a chance to work in IT up until last year. I have worked in different roles and fields, moving around whereever I'm needed in the company
 
 I'm looking for a career where I can focus on my new qualifications and perfect them, while being able to work remotely. I would enjoy being able to know my role as per my qualifications and focus on that role. I am also interested in investing and I'm hoping to use my new skills to help me better with my investments. 
 
